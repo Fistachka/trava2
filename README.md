@@ -1,3 +1,8 @@
+![3](https://github.com/user-attachments/assets/741ae611-500c-4c50-9409-1bb5b2905823)
+
+![4](https://github.com/user-attachments/assets/00c443d4-c41f-4a3a-a95a-b8e048886de8)
+
+
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
 "Трава у дома"  ВИА "Земляне" 1983 г. 1 часть

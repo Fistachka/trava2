@@ -3,7 +3,7 @@
 "Трава у дома"  ВИА "Земляне" 1983 г. 2 часть
 ![4](https://github.com/user-attachments/assets/00c443d4-c41f-4a3a-a95a-b8e048886de8)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/M4EtDKuSyMk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/rxXjGS-Lja4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ziyGewlDDz8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 И снится нам не рокот космодрома,
@@ -20,7 +20,7 @@ stolbitsa.com/fistachka/trava<br><br>
 "Trava u doma" (or "Grass Near the House"), performed by the band "Zemlyane" (1983) 2 st verse
 ![4](https://github.com/user-attachments/assets/00c443d4-c41f-4a3a-a95a-b8e048886de8)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/m3mvmGShARg" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/SyXZNvsmPqc" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/KADNdndVna8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 I snitsya nam ne rokot kosmodroma,
